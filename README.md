@@ -21,4 +21,4 @@ Informatics Engineering graduate from **Universitas Darma Persada** with hands-o
 
 ### 📫 Connect with Me
 - **Location:** East Jakarta, Indonesia
-- **Email:** *(setyodamara524@gmail.com)*
+- **Email:** *setyodamara524@gmail.com*
